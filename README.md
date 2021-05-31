@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @PatuiqxNT
+- 👀 I’m interested in Pc Tech
+- 💞️ I’m looking to collaborate on YouTube,Discord
